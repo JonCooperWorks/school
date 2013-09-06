@@ -1,4 +1,4 @@
-Jonathan Cooper's Notes
+Notes of a 3rd Year
 =======================
 
 What is this?
